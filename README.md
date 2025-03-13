@@ -2,7 +2,7 @@
 
 ⠀⠀⠀[![IMG-9311.png](https://i.postimg.cc/90VFDKtg/IMG-9311.png)](https://postimg.cc/ZB7hgfQ6)
 
-⠀⠀⠀[atabook](https://4saken.atabook.org) [rentry](https://rentry.co/babble) [pronouns cc](https://pronouns.cc/@betrayed) [strawpage](https://doublefedora.straw.page/) [guns lol](https://guns.lol/2time)
+⠀⠀⠀[atabook](https://4saken.atabook.org) [pt rentry](https://rentry.co/babble) [rentry](https://rentry.co/otherworldly) [pronouns cc](https://pronouns.cc/@betrayed) [strawpage](https://doublefedora.straw.page/) [guns lol](https://guns.lol/2time)
 
 
 <!---
