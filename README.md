@@ -1,6 +1,6 @@
 ⠀⠀⠀[![IMG-9472.png](https://i.postimg.cc/qM5sRP9v/IMG-9472.png)](https://postimg.cc/Mv1M3F6C)
 
-⠀⠀⠀[atabook](https://4saken.atabook.org) [pt rentry](https://rentry.co/babble) [rentry](https://rentry.co/otherworldly) [pronouns cc](https://pronouns.cc/@betrayed) [strawpage](https://doublefedora.straw.page/) [guns lol](https://guns.lol/2time)
+⠀⠀⠀[atabook](https://4saken.atabook.org) [pt rentry](https://rentry.co/babble) [rentry](https://rentry.co/otherworldly) [pronouns cc](https://pronouns.cc/@betrayed) [strawpage](https://adores.straw.page) [guns lol](https://guns.lol/2time)
 
 
 <!---
